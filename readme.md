@@ -1,5 +1,5 @@
 # 💫 About Me:
-🏢 Currently, I am working for Ximplia Srl as a Technical Leader.<br>💻 I'm looking for new opportunities for both personal and professional growth.<br>🤝 I'm learning new technologies for PM based on my expertise as a Technical Leader.<br>📚 I'm trying to improve my English.<br>❔ Ask me anything about mobile technologies.<br>🎮 Fun fact: former R6 pro player and now a passionate single-player gamer.
+🏢 Currently, I am working for Cosmobile as a Android Senior Developer.<br>💻 I'm looking for new opportunities for both personal and professional growth.<br>🤝 I'm learning new technologies for PM based on my expertise as a Technical Leader.<br>📚 I'm trying to improve my English.<br>❔ Ask me anything about mobile technologies.<br>🎮 Fun fact: former R6 pro player and now a passionate single-player gamer.
 
 
 ## 🌐 Socials:
